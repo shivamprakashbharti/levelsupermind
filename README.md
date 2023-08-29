@@ -8,7 +8,7 @@ Level Supermind is here to be your friend with its free meditation exercises, br
 https://docs.google.com/spreadsheets/d/1mY-1QP4ymjM4B7MjgIG6vwwCOL4HJNEtn-MVyLLGKm4/edit?usp=sharing
 
 # DEFECT REPORT'S LINK (PDF)
-https://drive.google.com/file/d/1RT3LWeblsOt1MwmZC9QBzEPJkbI2zkyQ/view?usp=sharing
+https://drive.google.com/file/d/1kUqzpdDIKkAVPeK5Q_rDelliogQleP8M/view?usp=sharing
 
 #  VIDEO PRESENTATION
 https://drive.google.com/file/d/1Cc57vnlCGml4sGlVGwsMOorLGNffjf7w/view?usp=sharing
